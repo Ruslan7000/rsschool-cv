@@ -1,0 +1,5 @@
+[CV_Ruslan_Khitseyeu.pdf.pdf](https://github.com/Ruslan7000/rsschool-cv/files/10185570/CV_Ruslan_Khitseyeu.pdf.pdf)
+Ruslan Khitseyeu
+
+ [cv.md.pdf](https://github.com/Ruslan7000/rsschool-cv/files/10185521/cv.md.pdf)[cv.md.pdf](https://github.com/Ruslan7000/rsschool-cv/files/10185556/cv.md.pdf)
+

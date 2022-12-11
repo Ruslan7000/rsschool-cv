@@ -1,3 +1,3 @@
 # rsschool-cv
 
-(https://github.com/Ruslan7000/rsschool-cv/files/10185521/cv.md.pdf)
+https://Ruslan7000.github.io/rsschool-cv/
